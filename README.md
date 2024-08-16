@@ -1,1 +1,1 @@
-Dark Theme. Made by Whymedream.
+Dark Theme. Made with Whymedream
